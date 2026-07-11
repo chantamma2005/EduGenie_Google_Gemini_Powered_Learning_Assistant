@@ -1,0 +1,1 @@
+# EduGenie_Google_Gemini_Powered_Learning_Assistant
